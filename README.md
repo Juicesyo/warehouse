@@ -17,3 +17,12 @@ VPN-[gain](/share/com.vpn.kmvpn11.KMAppApplcation.apk)
 [forked from danbooru - atfbooru](https://www.atfbooru.ninja/)
 <br>
 and so on...
+<hr>
+ATTENTION!
+**ban under 18.**
+<br>
+*
+<br>
+[(18禁アニメ) (無修正) [PashminaＡ] かくしデレ #1](https://1drv.ms/u/s!Arkql-zILJbdbf8mmfE0g9I-B98)
+[(18禁アニメ) (無修正) [PashminaＡ] かくしデレ #2 妹チョコH](https://1drv.ms/u/s!Arkql-zILJbdcdUOYE4z8ra7wUs)
+[(18禁アニメ) (無修正) [PashminaＡ] かくしデレ #3 初×初シンドローム](https://1drv.ms/u/s!Arkql-zILJbdbo7_bBMeg7837nI)
