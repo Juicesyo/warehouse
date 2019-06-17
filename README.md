@@ -5,7 +5,7 @@ ATTENTION!
 <br>
 **Read**
 <br>
-染黑的心——番外.森林记事.txt-[read](write_sljs.txt)
+染黑的心——番外.森林记事.txt-[read](/h/染黑的心——番外.森林记事.txt)
 <br>
 **Download**
 <br>
