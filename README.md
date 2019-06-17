@@ -1,6 +1,9 @@
 # *Share - My name is Juice*
 <hr>
-**Download-**
+**Read**
+染黑的心——番外.森林记事.txt-[read](write_sljs.txt)
+<br>
+**Download**
 <br>
 VPN-[gain](/share/com.vpn.kmvpn11.KMAppApplcation.apk)
 <br>
