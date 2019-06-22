@@ -23,6 +23,8 @@ VPN-[gain](/share/com.vpn.kmvpn11.KMAppApplcation.apk)
 <br>
 [forked from danbooru - atfbooru](https://www.atfbooru.ninja/)
 <br>
+[Novel](https://demonovel.netlify.com/)
+<br>
 and so on...
 <hr>
 **MV**
