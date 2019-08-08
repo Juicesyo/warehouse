@@ -5,7 +5,7 @@ ATTENTION!
 <br>
 **Read**
 <br>
-QQ Group:184912145
+QQ Group:[184912145](https://qm.qq.com/cgi-bin/qm/qr?k=d0mKz1JwvgziEs3VlEeaJPzcGjs3Sl7R&authKey=%2BV%2BlQ9d2fzl3FN5ct03P2VV3fFaQNC0E%2FEcX9zXfLzsykDLvFuSyeQ%3D%3D)
 <br>
 染黑的心——番外.森林记事.txt-[read](/h/染黑的心——番外.森林记事.txt)
 <br>
