@@ -5,6 +5,8 @@ ATTENTION!
 <br>
 **Read**
 <br>
+QQ Group:184912145
+<br>
 染黑的心——番外.森林记事.txt-[read](/h/染黑的心——番外.森林记事.txt)
 <br>
 **Download**
