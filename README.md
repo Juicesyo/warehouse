@@ -16,6 +16,7 @@ Chaos Dark-[read](https://www.linovel.net/book/113375.html)
 **Download**
 <br>
 VPN-[gain](/share/com.vpn.kmvpn11.KMAppApplcation.apk)
+<br>
 [恶魔的石板和被诅咒的犬公主](https://pan.baidu.com/s/1_xP9gAgYWA-W0U1fpYQeJw)——提取码:gebi
 <br>
 **Online tools & Others website**
@@ -38,8 +39,6 @@ and so on...
 <hr>
 **MV**
 <br>
-*
-<br>
 [(18禁アニメ) (無修正) [PashminaＡ] かくしデレ #1](https://1drv.ms/u/s!Arkql-zILJbdbf8mmfE0g9I-B98)
 <br>
 [(18禁アニメ) (無修正) [PashminaＡ] かくしデレ #2 妹チョコH](https://1drv.ms/u/s!Arkql-zILJbdcdUOYE4z8ra7wUs)
@@ -49,8 +48,6 @@ and so on...
 [[纯爱][熟肉]らぶりー 第1話 らぶりーあいなちゃん](https://pan.baidu.com/s/1_xUUHA98fyyuBYEEwC8Paw)——提取码：r0tc
 <hr>
 **Juice Plugin Video**
-<br>
-*
 <br>
 [看漫画教程](http://menhera.ga/video/看漫画设置&应用.mp4)
 <br>
