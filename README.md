@@ -11,9 +11,12 @@ QQ Group:[184912145](https://qm.qq.com/cgi-bin/qm/qr?k=d0mKz1JwvgziEs3VlEeaJPzcG
 <br>
 渴求神的魔法师-[read](https://www.linovel.net/book/110833.html)
 <br>
+Chaos Dark-[read](https://www.linovel.net/book/113375.html)
+<br>
 **Download**
 <br>
 VPN-[gain](/share/com.vpn.kmvpn11.KMAppApplcation.apk)
+[恶魔的石板和被诅咒的犬公主](https://pan.baidu.com/s/1_xP9gAgYWA-W0U1fpYQeJw)——提取码:gebi
 <br>
 **Online tools & Others website**
 <br>
@@ -44,12 +47,6 @@ and so on...
 [(18禁アニメ) (無修正) [PashminaＡ] かくしデレ #3 初×初シンドローム](https://1drv.ms/u/s!Arkql-zILJbdbo7_bBMeg7837nI)
 <br>
 [[纯爱][熟肉]らぶりー 第1話 らぶりーあいなちゃん](https://pan.baidu.com/s/1_xUUHA98fyyuBYEEwC8Paw)——提取码：r0tc
-<hr>
-**App**
-<br>
-*
-<br>
-[恶魔的石板和被诅咒的犬公主](https://pan.baidu.com/s/1_xP9gAgYWA-W0U1fpYQeJw)——提取码:gebi
 <hr>
 **Juice Plugin Video**
 <br>
