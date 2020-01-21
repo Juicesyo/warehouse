@@ -44,5 +44,19 @@ and so on...
 [(18禁アニメ) (無修正) [PashminaＡ] かくしデレ #3 初×初シンドローム](https://1drv.ms/u/s!Arkql-zILJbdbo7_bBMeg7837nI)
 <br>
 [[纯爱][熟肉]らぶりー 第1話 らぶりーあいなちゃん](https://pan.baidu.com/s/1_xUUHA98fyyuBYEEwC8Paw)——提取码：r0tc
+<hr>
+**App**
+<br>
+*
+<br>
+[恶魔的石板和被诅咒的犬公主](https://pan.baidu.com/s/1_xP9gAgYWA-W0U1fpYQeJw)——提取码:gebi
+<hr>
+**Juice Plugin Video**
+<br>
+*
+<br>
+[看漫画教程](http://menhera.ga/video/看漫画设置&应用.mp4)
+<br>
+[ate文字游戏教程](http://menhera.ga/video/ate设置.mp4)
 <br>
 end.
