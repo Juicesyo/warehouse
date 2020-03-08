@@ -12,6 +12,8 @@ ATTENTION!**ban under 18.**
 <br>
 Chaos Dark-[read](https://www.linovel.net/book/113375.html)
 <br>
+抵生谩死-[read](https://www.linovel.net/book/114772.html)
+<br>
 **Download**
 <br>
 VPN-[gain](/share/com.vpn.kmvpn11.KMAppApplcation.apk)
