@@ -1,6 +1,6 @@
 # *Share - My name is Juice*
 <hr>
-QQ Group:[184912145](https://qm.qq.com/cgi-bin/qm/qr?k=d0mKz1JwvgziEs3VlEeaJPzcGjs3Sl7R&authKey=%2BV%2BlQ9d2fzl3FN5ct03P2VV3fFaQNC0E%2FEcX9zXfLzsykDLvFuSyeQ%3D%3D)
+QQ Group:[581103186](https://jq.qq.com/?_wv=1027&k=lnXO0g1y)
 <br>
 ATTENTION!**ban under 18.**
 <br>
