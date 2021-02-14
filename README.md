@@ -10,15 +10,11 @@ ATTENTION!**ban under 18.**
 <br>
 渴求神的魔法师-[read](https://www.linovel.net/book/110833.html)
 <br>
-Chaos Dark-[read](https://www.linovel.net/book/113375.html)
-<br>
 抵生谩死-[read](https://www.linovel.net/book/114772.html)
 <br>
 **Download**
 <br>
 VPN-[gain](/share/com.vpn.kmvpn11.KMAppApplcation.apk)
-<br>
-[恶魔的石板和被诅咒的犬公主](https://pan.baidu.com/s/1_xP9gAgYWA-W0U1fpYQeJw)——提取码:gebi
 <br>
 **Online tools & Others website**
 <br>
@@ -32,9 +28,13 @@ VPN-[gain](/share/com.vpn.kmvpn11.KMAppApplcation.apk)
 <br>
 [forked from danbooru - atfbooru](https://www.atfbooru.ninja/)
 <br>
-[Novel](https://demonovel.netlify.com/)
+[demonovel](https://opds.now.sh/novel)
 <br>
-[轻小说文库](https://www.wenku8.net)
+[轻之国度](https://www.lightnovel.us/)
+<br>
+[真白萌Web小镇](https://masiro.moe/)
+<br>
+[ESJ Zone](https://www.esjzone.cc/)
 <br>
 and so on...
 <hr>
@@ -47,11 +47,4 @@ and so on...
 [(18禁アニメ) (無修正) [PashminaＡ] かくしデレ #3 初×初シンドローム](https://1drv.ms/u/s!Arkql-zILJbdbo7_bBMeg7837nI)
 <br>
 [[纯爱][熟肉]らぶりー 第1話 らぶりーあいなちゃん](https://pan.baidu.com/s/1_xUUHA98fyyuBYEEwC8Paw)——提取码：r0tc
-<hr>
-**Juice Plugin Video**
-<br>
-[看漫画教程](http://menhera.ga/video/看漫画设置&应用.mp4)
-<br>
-[ate文字游戏教程](http://menhera.ga/video/ate设置.mp4)
-<br>
 end.
