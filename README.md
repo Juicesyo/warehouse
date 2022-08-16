@@ -1,5 +1,6 @@
-# *Share - This is Juice's warehouse*
+# *Share - This is Juice's note*
 <hr>
+<!---
 QQ Group:[581103186](https://jq.qq.com/?_wv=1027&k=lnXO0g1y)
 <br>
 ATTENTION!**ban under 18.**
@@ -16,6 +17,7 @@ ATTENTION!**ban under 18.**
 <br>
 VPN-[gain](/share/com.vpn.kmvpn11.KMAppApplcation.apk)
 <br>
+-->
 **Online tools & Others website**
 <br>
 [免费和在线文件转换器 - ConvertFiles.com](http://www.convertfiles.com/)
@@ -48,4 +50,3 @@ and so on...
 <br>
 [[纯爱][熟肉]らぶりー 第1話 らぶりーあいなちゃん](https://pan.baidu.com/s/1_xUUHA98fyyuBYEEwC8Paw)——提取码：r0tc
 <br>
-end.
